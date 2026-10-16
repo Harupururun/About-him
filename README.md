@@ -1,6 +1,6 @@
 # About-him
 
-# ᥲᑲ᥆ᥙ𝗍 mᥱ! 
+
 ![description](https://cdn.phototourl.com/member/2026-10-16-e5a8c035-d491-476a-863d-7aff4a1b4c35.png)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˗ˋˏ༺❤︎༻ˎˊ˗
 
